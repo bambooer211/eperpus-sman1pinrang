@@ -1,0 +1,1 @@
+# eperpus-sman1pinrang
